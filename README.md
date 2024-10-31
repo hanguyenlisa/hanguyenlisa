@@ -1,4 +1,7 @@
 Loading...
+
+"Freelance Artist and Indie Game Dev. Currently woking on projects and making money (though not a cent in my pocket). Open to collaborations and freelance opportunities (if you got food for me). Or, you know, just send me some money. I'm starving."
+
 <!--- 👋 Hi, I’m @hanguyenlisa
 - 👀 I’m interested in you jk art and money (not golddinger lol)
 - 🌱 I’m currently learning to make money/art
